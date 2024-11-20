@@ -1,1 +1,1 @@
-[Link CV_QA_Natallia_Zhukava](https://drive.google.com/file/d/1ybtmhwbUHPEyj_lpOtE6t0eRx7TkpLiD/view?usp=drive_link)
+[Link CV_QA_Natallia_Zhukava](https://docs.google.com/document/d/1rpDoYldGCgAWCQiuwJYLLn24pHPANeL92EjU89iIxng/edit?usp=drive_link)
